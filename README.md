@@ -3,6 +3,7 @@
 ## Zdroje
 
 * <https://sk.wikipedia.org/wiki/Herakles_(mytol%C3%B3gia)>
+* <https://beliana.sav.sk/heslo/herakles>
 
 ### Obrázky
 
